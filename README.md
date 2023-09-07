@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **shikharpoonia9@gmail.com**
 
-- 📄 Know about my experiences [https://docs.google.com/document/d/1nQ3EnPJGCIxlGgKYjGOTjLE9_mhWs3QWTRHem5uqVsk/edit?usp=drive_link](https://docs.google.com/document/d/1nQ3EnPJGCIxlGgKYjGOTjLE9_mhWs3QWTRHem5uqVsk/edit?usp=drive_link)
+- 📄 Know about my experiences [https://docs.google.com/document/d/1nQ3EnPJGCIxlGgKYjGOTjLE9_mhWs3QWTRHem5uqVsk/edit?usp=sharing](https://docs.google.com/document/d/1nQ3EnPJGCIxlGgKYjGOTjLE9_mhWs3QWTRHem5uqVsk/edit?usp=sharing)
 
 - ⚡ Fun fact **Duniya Gol H lol**
 
